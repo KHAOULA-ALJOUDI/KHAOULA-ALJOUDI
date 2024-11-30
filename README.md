@@ -4,4 +4,4 @@
 💞️ I’m looking to collaborate on projects related to smart electrical grids, AI-based solutions, and innovative renewable energy systems.
 📫 How to reach me: aljoudi.k951@gmail.com 
 😄 Pronouns: She
-⚡ Fun fact: I love combining science and creativity, whether it’s through engineering projects or designing innovative ideas for the future!
+⚡ Fun fact: I love combining science and creativity, whether it’s through engineering projects or designing innovative ideas for the future
